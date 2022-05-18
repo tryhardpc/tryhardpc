@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @tryhardpc
+- 👀 I’m interested in ...le code
+- 🌱 I’m currently learning ...rien
+- 💞️ I’m looking to collaborate on ...rien
+- 📫 How to reach me ...vien sur tiktok : tryhardpc
+- 
